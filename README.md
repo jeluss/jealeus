@@ -1,2 +1,2 @@
 # personalsitescript
-https://berkovic.cc/berk
+jeluss la işte
